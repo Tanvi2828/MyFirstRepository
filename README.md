@@ -39,7 +39,7 @@ Here are some cool projects I’m working on or planning to build:
 ---
 
 ## 🌐 Let’s Connect  
-- **LinkedIn:** (https://linkedin.com/in/Tanvi Ghodke)  
+- **LinkedIn:** (https://linkedin.com/in/TanviGhodke)  
 - **GitHub:** Tanvi2828 😊  
 
 ---
